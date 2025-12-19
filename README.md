@@ -100,4 +100,4 @@ _BD datapro_
 ## Mis Redes Sociales
 
 - 🔔 Hello.
-- 👉 Visita mi sitio web https://linktr.ee/Fagua_Art 💻
+- 👉 Visita mi sitio web https://linktr.ee/David_Fagua 💻
